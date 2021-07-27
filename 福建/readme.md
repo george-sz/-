@@ -1,4 +1,5 @@
 [福建土楼](http://www.mafengwo.cn/gonglve/ziyouxing/669.html)
+[路线](https://www.jianshu.com/p/f39a98b76d90)
 
 1day
   深圳 ---> 泰宁
