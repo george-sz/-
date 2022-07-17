@@ -8,4 +8,4 @@
    
    [线路3]( http://www.mafengwo.cn/gonglve/ziyouxing/23932.html)
   
-
+   [稻城亚丁的正确打开方式（附川西行程攻略）]( https://www.mafengwo.cn/gonglve/ziyouxing/112034.html)
